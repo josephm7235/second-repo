@@ -1,1 +1,1 @@
-Go beyond! PLUS!! ULTRA!!!
+I'll teach you what they really mean. Go beyond! PLUS!! ULTRA!!!
